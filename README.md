@@ -1,1 +1,0 @@
-# istjinfo.github.io
